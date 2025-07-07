@@ -24,4 +24,4 @@
 如果你正在寻找一个免费看日本AV的平台，这些资源站点绝对值得收藏。永久免费，高清播放，不卡无广告，是目前网络上体验最好的选择之一。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/DV20250707/DV02 ）</span>
